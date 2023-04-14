@@ -1,3 +1,3 @@
-## Welcome to Dash Curling.
+## Welcome to Pleija Curling.
 
 Welcome!
